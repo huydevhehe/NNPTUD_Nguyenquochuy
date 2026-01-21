@@ -1,1 +1,3 @@
-# NNPTUD_Nguyenquochuy
+Nguyễn Quốc Huy 
+22DTHC7
+2280601202
